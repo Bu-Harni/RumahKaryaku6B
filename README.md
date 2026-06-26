@@ -1,1 +1,0 @@
-# RumahKaryaku6B
